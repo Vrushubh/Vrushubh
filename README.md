@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Vrushubh
 - 👀 I’m interested in Coding & Learning Some New Skills
-- 🌱 I’m currently learning Third Year Computer Engineering
+- 🌱 I’m recently completed Computer Engineering
 - 💞️ I’m looking to collaborate on for getting a Job
-- 📫 insta-@vrushubh_gandhi5782
+- 📫 insta-@vrushubh_gandhi_5782
 - 😄 Pronouns: he
 - ⚡ Fun fact: ...
 
